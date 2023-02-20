@@ -6,5 +6,5 @@ I 'm *Ashenafi Kiros* from Ethiopia, currently living in [Belgium](www.visitbelg
 
 #My best quote
 
-One of my best quotes is:
+If you dream big and work hard every thing is achievable saying this one of my best quotes is:
 >"Nothing is impossible except the word impossible on a dictionary"
